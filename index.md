@@ -22,11 +22,11 @@
 ## Kazimiera Zawieja, z domu Gucz
 * 24.02.1896 - 29.10.1956
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim
-* Rodzice: ---
-* Rodzeństwo: ---
+* Rodzice: ???
+* Rodzeństwo: ???
 * Dzieci:
   * Mirosława Zawieja
-  * Helena Zawieja
+  * Halina Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
 
