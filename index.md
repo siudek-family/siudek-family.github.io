@@ -19,6 +19,18 @@
 
 ## Marianna Siudek, z domu Żurek
 
+## Kazimiera Zawieja, z domu Gucz
+* 24.02.1896 - 29.10.1956
+* Spoczywa na cmentarzu w Ostrowie Wielkopolskim
+* Rodzice: ---
+* Rodzeństwo: ---
+* Dzieci:
+  * Mirosława Zawieja
+  * Helena Zawieja
+  * Jan Zawieja
+  * Krystyna Zawieja
+
+
 ## Józef Siudek
 * Syn Franciszka Siudka i Marianny Siudek, z domu Żurek
 
@@ -27,5 +39,9 @@
 # Wydarzenia
 
 # Miejsca
+* Kołomyja
+* Ostrów Wielkopolski
+* Piotrków Trybunalski
+* Trzcianka
 
 # Postacie
