@@ -76,11 +76,17 @@ Do uzupełnienia
 
 
 # Wydarzenia
+Do uzupełnienia
 
 # Miejsca
 * Kołomyja
+  * Do uzupełnienia
 * Ostrów Wielkopolski
+  * Do uzupełnienia
 * Piotrków Trybunalski
+  * Do uzupełnienia
 * Trzcianka
+  * Do uzupełnienia
 
 # Postacie
+* Do uzupełnienia - ważne postacie związane z rodzinami, chociaż z nimi nie spokrewnione
