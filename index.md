@@ -9,7 +9,7 @@
  * Joanna Junger
 
 ## Halina Junger, z domu Zawieja
-* Córka TBD i Kazimiery Zawieja, z domu Gucz
+* Córka Józefa i Kazimiery Zawieja, z domu Gucz
 * Rodzeństwo:
  * Mirosława Zawieja
  * Jan Zawieja
@@ -20,10 +20,10 @@
 ## Marianna Siudek, z domu Żurek
 
 ------
-## Kazimiera Zawieja, z domu Gucz
-* 24.02.1896 - 29.10.1956
+## Józef Zawieja
+* 20.?2.1893 - 16.09.1945
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim
-* Rodzice: ???
+* Małżonek: Kazimiera Gucz
 * Rodzeństwo: ???
 * Dzieci:
   * Mirosława Zawieja
@@ -31,9 +31,31 @@
   * Jan Zawieja
   * Krystyna Zawieja
 
+------
+## Kazimiera Zawieja, z domu Gucz
+* 24.02.1896 - 29.10.1956
+* Spoczywa na cmentarzu w Ostrowie Wielkopolskim
+* Małżonek: Józef Zawieja
+* Rodzeństwo: ???
+* Dzieci:
+  * Mirosława Zawieja
+  * Halina Zawieja
+  * Jan Zawieja
+  * Krystyna Zawieja
+
+------
+## Jan Zawieja
+* Rodzice: Józef i Kazimiera Zawieja
+* 07.08.1928 - 02.01.2009
+* Spoczywa na cmentarzu w Ostrowie Wielkopolskim
+* Rodzeństwo: 
+  * Mirosława Zawieja
+  * Halina Zawieja
+  * Krystyna Zawieja
+* Dzieci: ???
 
 ## Józef Siudek
-* Syn Franciszka Siudka i Marianny Siudek, z domu Żurek
+* Rodzice: Franciszka i Marianna Siudek
 
 ## Genowefa Siudek, z domu Fila
 
