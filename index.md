@@ -1,7 +1,3 @@
-## Józef Junger
-
-## Anna Junger, z domu Bowszek
-
 ## Edward Junger
 * Syn Józefa Jungera i Anny Junger (z domu Bowszek)
 * Rodzeństwo:
@@ -16,13 +12,15 @@
  * Krystyna Zawieja
 
 ## Franciszek Siudek
+Do uzupełnienia
 
 ## Marianna Siudek, z domu Żurek
+Do uzupełnienia
 
 ------
 ## Józef Zawieja
 * 20.?2.1893 - 16.09.1945
-* Spoczywa na cmentarzu w Ostrowie Wielkopolskim
+* Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwatererze z córką Mirosławą)
 * Małżonek: Kazimiera Gucz
 * Rodzeństwo: ???
 * Dzieci:
@@ -54,10 +52,28 @@
   * Krystyna Zawieja
 * Dzieci: ???
 
+------
+## Mirosława Cegła, z domu Zawieja
+* Rodzice: Józef i Kazimiera Zawieja
+* 04.06.1923 - 14.09.1924
+* Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z ojcem Józefem)
+  * Halina Zawieja
+  * jan Zawieja
+  * Krystyna Zawieja
+
+
 ## Józef Siudek
 * Rodzice: Franciszka i Marianna Siudek
 
 ## Genowefa Siudek, z domu Fila
+Do uzupełnienia
+
+## Józef Junger
+Do uzupełnienia
+
+## Anna Junger, z domu Bowszek
+Do uzupełnienia
+
 
 # Wydarzenia
 
