@@ -16,6 +16,7 @@ Do uzupełnienia
 * Dzieci
   * Rudolf Junger
   * Edward Junger
+  * Joanna Junger
 
 ------
 ## Anna Junger, z domu Bowszek
@@ -26,6 +27,7 @@ Do uzupełnienia
 * Dzieci
   * Rudolf Junger
   * Edward Junger
+  * Joanna Junger
 
 ------
 ## Józef Zawieja
