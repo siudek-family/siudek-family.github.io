@@ -1,9 +1,3 @@
-## Edward Junger
-* Syn Józefa Jungera i Anny Junger (z domu Bowszek)
-* Rodzeństwo:
- * Rudolf Junger
- * Joanna Junger
-
 ## Franciszek Siudek
 Do uzupełnienia
 
@@ -13,7 +7,7 @@ Do uzupełnienia
 ------
 ## Józef Zawieja
 * 20.?2.1893 - 16.09.1945
-* Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwatererze z córką Mirosławą)
+* Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z córką Mirosławą)
 * Małżonek: Kazimiera Gucz
 * Rodzeństwo: ???
 * Dzieci:
@@ -36,6 +30,15 @@ Do uzupełnienia
   * Jan Zawieja
   * Krystyna Zawieja
 
+---
+## Edward Junger
+* Syn Józefa Jungera i Anny Junger (z domu Bowszek)
+* 11.02.1919 - 06.08.1992
+* Spoczywa w Trzciance
+* Rodzeństwo:
+ * Rudolf Junger
+ * Joanna Junger
+
 ------
 ## Henryka Trzcińska, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
@@ -49,7 +52,9 @@ Do uzupełnienia
 
 ------
 ## Halina Junger, z domu Zawieja
-* Córka Józefa i Kazimiery Zawieja, z domu Gucz
+* Rodzice: Józef i Kazimiera Zawieja
+* 23.01.1992 - 05.05.2006
+* Spoczywa w Trzciance
 * Rodzeństwo:
  * Mirosława Zawieja
  * Jan Zawieja
