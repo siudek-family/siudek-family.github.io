@@ -63,7 +63,7 @@ Do uzupełnienia
 ------
 ## Mirosława Cegła, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
-* 04.06.1923 - 14.09.1924
+* 04.06.1923 - 14.09.2004
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z ojcem Józefem)
   * Henryka Zawieja
   * Halina Zawieja
