@@ -42,8 +42,8 @@ Do uzupełnienia
 * 11.02.1919 - 06.08.1992
 * Spoczywa w Trzciance
 * Rodzeństwo:
- * Rudolf Junger
- * Joanna Junger
+  * Rudolf Junger
+  * Joanna Junger
 
 ------
 ## Henryka Trzcińska, z domu Zawieja
@@ -62,9 +62,9 @@ Do uzupełnienia
 * 23.01.1922 - 05.05.2006
 * Spoczywa w Trzciance
 * Rodzeństwo:
- * Mirosława Zawieja
- * Jan Zawieja
- * Krystyna Zawieja
+  * Mirosława Zawieja
+  * Jan Zawieja
+  * Krystyna Zawieja
 
 ------
 ## Mirosława Cegła, z domu Zawieja
