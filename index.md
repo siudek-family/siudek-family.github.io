@@ -119,6 +119,8 @@ Na zdjęciu: Ostrów Wielkopolski, Rynek 30. W oknach od lewej Kazimiera Zawieja
 Na zdjęciu: Gazeta lokalna, z reklamą usług M. Gucz
 ![Gazeta-OredownikOstrowski-1925-11-17](Gazeta-OredownikOstrowski-1925-11-17.png)
 
+*W domu tym prężyła firany Kazimiera Zawieja z córką Mirą, a trafiali się i zamożniejsi klienci, jak np. producent wędlin. Wtedy najmłodsza Krysia zanosiła firany takiemu odbiorcy, za co często była nagradzana - i tak trafiało się Krysi wrócić z wędlinami. Można więc powiedzieć, że rodzinny interes prosperował w kilku płaszczyznach* **Krystyna Muszalska**
+
 ## Piotrków Trybunalski
   * Do uzupełnienia
 
