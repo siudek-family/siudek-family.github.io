@@ -5,6 +5,11 @@ Do uzupełnienia
 Do uzupełnienia
 
 ------
+## Babcia M. Gucz
+* Dzieci:
+  * Kazimiera Gucz
+
+------
 ## Józef Zawieja
 * 20.?2.1893 - 16.09.1945
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z córką Mirosławą)
@@ -19,6 +24,7 @@ Do uzupełnienia
 
 ------
 ## Kazimiera Zawieja, z domu Gucz
+* Rodzice: M. Gucz
 * 24.02.1896 - 29.10.1956
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim
 * Małżonek: Józef Zawieja
@@ -98,14 +104,25 @@ Do uzupełnienia
 # Wydarzenia
 Do uzupełnienia
 
+======
 # Miejsca
-* Kołomyja
+
+## Kołomyja
+Z kołomyji pochodzi Edward Junger. Po wojnie, posiadając dom w Trzciance przy ul. Konarskiego, Edward wrócił do Kołomyji i zabrał z tamtąd swoją mamę Annę. Grób jego ojca Józefa w Kołomyji został zniszczony.
+
+## Ostrów Wielkopolski
+W Ostrowie Wielkopolskim, pod adresem Rynek 30 pracowała (a być może i mieszkała) Babcia M. Gucz z rodziną.
+
+Na zdjęciu: Ostrów Wielkopolski, Rynek 30. W oknach od lewej Kazimiera Zawieja i Babcia M. Gucz
+![OstrowWielkopolski-Rynek30-19XX](OstrowWielkopolski-Rynek30-19XX.png)
+
+Na zdjęciu: Gazeta lokalna, z reklamą usług M. Gucz
+![Gazeta-OredownikOstrowski-1925-11-17](Gazeta-OredownikOstrowski-1925-11-17.png)
+
+## Piotrków Trybunalski
   * Do uzupełnienia
-* Ostrów Wielkopolski
-  * Do uzupełnienia
-* Piotrków Trybunalski
-  * Do uzupełnienia
-* Trzcianka
+
+## Trzcianka
   * Do uzupełnienia
 
 # Postacie
