@@ -113,7 +113,7 @@ Z kołomyji pochodzi Edward Junger. Po wojnie, posiadając dom w Trzciance przy 
 ## Ostrów Wielkopolski
 W Ostrowie Wielkopolskim, pod adresem Rynek 30 pracowała (a być może i mieszkała) Babcia M. Gucz z rodziną.
 
-Na zdjęciu: Ostrów Wielkopolski, Rynek 30. W oknach od lewej Kazimiera Zawieja i Babcia M. Gucz
+Na zdjęciu: Ostrów Wielkopolski, Rynek 30. W oknach od lewej Kazimiera Zawieja i Babcia M. Gucz. Z lewej strony na okiennicy reklama: **Przyjmę bieliznę do prania i prasowania**
 ![OstrowWielkopolski-Rynek30-19XX](OstrowWielkopolski-Rynek30-19XX.png)
 
 Na zdjęciu: Gazeta lokalna, z reklamą usług M. Gucz
