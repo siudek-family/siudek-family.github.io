@@ -14,6 +14,7 @@ Do uzupełnienia
 * Małżonek: Anna Bowszek
 * Dzieci
   * Rudolf Junger
+  * Stefania Junger
   * Edward Junger
   * Joanna Junger
 
@@ -25,8 +26,9 @@ Do uzupełnienia
 * Rodzeństwo: nieznane
 * Dzieci
   * Rudolf Junger
-  * Edward Junger
+  * Stefania Junger
   * Joanna Junger
+  * Edward Junger
 
 ------
 ## Józef Zawieja
