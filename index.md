@@ -24,6 +24,7 @@ Do uzupełnienia
 * Małżonek: Kazimiera Gucz
 * Rodzeństwo: ???
 * Dzieci:
+  * Henryka Zawieja
   * Mirosława Zawieja
   * Halina Zawieja
   * Jan Zawieja
@@ -36,6 +37,18 @@ Do uzupełnienia
 * Małżonek: Józef Zawieja
 * Rodzeństwo: ???
 * Dzieci:
+  * Henryka Zawieja
+  * Mirosława Zawieja
+  * Halina Zawieja
+  * Jan Zawieja
+  * Krystyna Zawieja
+
+------
+## Henryka Trzcińska, z domu Zawieja
+* Rodzice: Józef i Kazimiera Zawieja
+* Data urodzenia / śmierci - do uzupełnienia
+* Małżonek: ???
+* Rodzeństwo:
   * Mirosława Zawieja
   * Halina Zawieja
   * Jan Zawieja
@@ -47,6 +60,7 @@ Do uzupełnienia
 * 07.08.1928 - 02.01.2009
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim
 * Rodzeństwo: 
+  * Henryka Zawieja
   * Mirosława Zawieja
   * Halina Zawieja
   * Krystyna Zawieja
@@ -57,6 +71,7 @@ Do uzupełnienia
 * Rodzice: Józef i Kazimiera Zawieja
 * 04.06.1923 - 14.09.1924
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z ojcem Józefem)
+  * Henryka Zawieja
   * Halina Zawieja
   * jan Zawieja
   * Krystyna Zawieja
