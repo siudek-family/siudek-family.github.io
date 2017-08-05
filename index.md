@@ -10,6 +10,14 @@ Do uzupełnienia
   * Kazimiera Gucz
 
 ------
+## Józef Junger
+Do uzupełnienia
+* Małżonek: Anna Bowszek
+* Dzieci
+  * Rudolf Junger
+  * Edward Junger
+
+------
 ## Anna Junger, z domu Bowszek
 * 17.10.1882 - 03.03.1965
 * Spoczywa na starym cmentarzu w Trzciance
@@ -103,13 +111,6 @@ Do uzupełnienia
 
 ## Genowefa Siudek, z domu Fila
 Do uzupełnienia
-
-## Józef Junger
-Do uzupełnienia
-
-## Anna Junger, z domu Bowszek
-Do uzupełnienia
-
 
 # Wydarzenia
 Do uzupełnienia
