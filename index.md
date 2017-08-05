@@ -4,13 +4,6 @@
  * Rudolf Junger
  * Joanna Junger
 
-## Halina Junger, z domu Zawieja
-* Córka Józefa i Kazimiery Zawieja, z domu Gucz
-* Rodzeństwo:
- * Mirosława Zawieja
- * Jan Zawieja
- * Krystyna Zawieja
-
 ## Franciszek Siudek
 Do uzupełnienia
 
@@ -53,6 +46,14 @@ Do uzupełnienia
   * Halina Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
+
+------
+## Halina Junger, z domu Zawieja
+* Córka Józefa i Kazimiery Zawieja, z domu Gucz
+* Rodzeństwo:
+ * Mirosława Zawieja
+ * Jan Zawieja
+ * Krystyna Zawieja
 
 ------
 ## Jan Zawieja
