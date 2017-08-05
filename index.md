@@ -111,7 +111,7 @@ Do uzupełnienia
 Z kołomyji pochodzi Edward Junger. Po wojnie, posiadając dom w Trzciance przy ul. Konarskiego, Edward wrócił do Kołomyji i zabrał z tamtąd swoją mamę Annę. Grób jego ojca Józefa w Kołomyji został zniszczony.
 
 ## Ostrów Wielkopolski
-W Ostrowie Wielkopolskim, pod adresem Rynek 30 pracowała (a być może i mieszkała) Babcia M. Gucz z rodziną.
+W Ostrowie Wielkopolskim, pod adresem Rynek 30 pracowała (a być może i mieszkała) Babcia M. Gucz z rodziną. Budynek istnieje do dnia dzisiejszego, obecnie jest to adres Plac 23 stycznia, numer domu 13.
 
 Na zdjęciu: Ostrów Wielkopolski, Rynek 30. W oknach od lewej Kazimiera Zawieja i Babcia M. Gucz. Z lewej strony na okiennicy reklama: **Przyjmę bieliznę do prania i prasowania**
 ![OstrowWielkopolski-Rynek30-19XX](OstrowWielkopolski-Rynek30-19XX.png)
