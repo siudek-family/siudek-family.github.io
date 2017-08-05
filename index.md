@@ -53,7 +53,7 @@ Do uzupełnienia
 ------
 ## Halina Junger, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
-* 23.01.1992 - 05.05.2006
+* 23.01.1922 - 05.05.2006
 * Spoczywa w Trzciance
 * Rodzeństwo:
  * Mirosława Zawieja
