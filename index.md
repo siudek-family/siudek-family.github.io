@@ -10,6 +10,16 @@ Do uzupełnienia
   * Kazimiera Gucz
 
 ------
+## Anna Junger, z domu Bowszek
+* 17.10.1882 - 03.03.1965
+* Spoczywa na starym cmentarzu w Trzciance
+* Małżonek: Józef Junger
+* Rodzeństwo: nieznane
+* Dzieci
+  * Rudolf Junger
+  * Edward Junger
+
+------
 ## Józef Zawieja
 * 20.?2.1893 - 16.09.1945
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z córką Mirosławą)
@@ -38,7 +48,7 @@ Do uzupełnienia
 
 ---
 ## Edward Junger
-* Syn Józefa Jungera i Anny Junger (z domu Bowszek)
+* Rodzice: Józef i Anna Junger (z domu Bowszek)
 * 11.02.1919 - 06.08.1992
 * Spoczywa w Trzciance
 * Rodzeństwo:
