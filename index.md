@@ -83,7 +83,7 @@ Do uzupełnienia
 * Dzieci: ???
 
 ## Józef Siudek
-* Rodzice: Franciszka i Marianna Siudek
+* Rodzice: Franciszek i Marianna Siudek
 
 ## Genowefa Siudek, z domu Fila
 Do uzupełnienia
