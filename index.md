@@ -11,7 +11,6 @@ Do uzupełnienia
 
 ------
 ## Józef Junger
-Do uzupełnienia
 * Małżonek: Anna Bowszek
 * Dzieci
   * Rudolf Junger
