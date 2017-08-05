@@ -12,8 +12,8 @@ Do uzupełnienia
 * Rodzeństwo: ???
 * Dzieci:
   * Henryka Zawieja
-  * Mirosława Zawieja
   * Halina Zawieja
+  * Mirosława Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
 
@@ -45,8 +45,8 @@ Do uzupełnienia
 * Data urodzenia / śmierci - do uzupełnienia
 * Małżonek: ???
 * Rodzeństwo:
-  * Mirosława Zawieja
   * Halina Zawieja
+  * Mirosława Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
 
@@ -61,18 +61,6 @@ Do uzupełnienia
  * Krystyna Zawieja
 
 ------
-## Jan Zawieja
-* Rodzice: Józef i Kazimiera Zawieja
-* 07.08.1928 - 02.01.2009
-* Spoczywa na cmentarzu w Ostrowie Wielkopolskim
-* Rodzeństwo: 
-  * Henryka Zawieja
-  * Mirosława Zawieja
-  * Halina Zawieja
-  * Krystyna Zawieja
-* Dzieci: ???
-
-------
 ## Mirosława Cegła, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
 * 04.06.1923 - 14.09.1924
@@ -82,6 +70,17 @@ Do uzupełnienia
   * jan Zawieja
   * Krystyna Zawieja
 
+------
+## Jan Zawieja
+* Rodzice: Józef i Kazimiera Zawieja
+* 07.08.1928 - 02.01.2009
+* Spoczywa na cmentarzu w Ostrowie Wielkopolskim
+* Rodzeństwo: 
+  * Henryka Zawieja
+  * Halina Zawieja
+  * Mirosława Zawieja
+  * Krystyna Zawieja
+* Dzieci: ???
 
 ## Józef Siudek
 * Rodzice: Franciszka i Marianna Siudek
