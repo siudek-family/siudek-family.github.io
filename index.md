@@ -37,9 +37,9 @@ Do uzupełnienia
 * Małżonek: Kazimiera Gucz
 * Rodzeństwo: ???
 * Dzieci:
-  * Henryka Zawieja
   * Halina Zawieja
   * Mirosława Zawieja
+  * Henryka Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
 
@@ -51,9 +51,9 @@ Do uzupełnienia
 * Małżonek: Józef Zawieja
 * Rodzeństwo: ???
 * Dzieci:
-  * Henryka Zawieja
   * Mirosława Zawieja
   * Halina Zawieja
+  * Henryka Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
 
@@ -71,17 +71,6 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
 ![Gazeta-GlosTrzcianki-1992-08-23-Wspomnienie](Gazeta-GlosTrzcianki-1992-08-23-Wspomnienie.jpg)
 
 ------
-## Henryka Trzcińska, z domu Zawieja
-* Rodzice: Józef i Kazimiera Zawieja
-* Data urodzenia / śmierci - do uzupełnienia
-* Małżonek: ???
-* Rodzeństwo:
-  * Halina Zawieja
-  * Mirosława Zawieja
-  * Jan Zawieja
-  * Krystyna Zawieja
-
-------
 ## Halina Junger, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
 * 23.01.1922 - 05.05.2006
@@ -92,14 +81,30 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
   * Krystyna Zawieja
 
 ------
-## Mirosława primo voto Cuske, secundo voto Cegła, z domu Zawieja
+## Mirosława Cegła (primo voto Cuske, secundo voto Cegła), z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
 * 04.06.1923 - 14.09.2004
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z ojcem Józefem)
-  * Henryka Zawieja
   * Halina Zawieja
-  * jan Zawieja
+  * Henryka Zawieja
+  * Jan Zawieja
   * Krystyna Zawieja
+
+------
+## Henryka Trzcińska, z domu Zawieja
+* Rodzice: Józef i Kazimiera Zawieja
+* ur. 25.01.1925 w Ostrowie Wielkopolskim - zm. 07.07.2005
+* Małżonek: Tadeusz Trzciński (ur. 05.07.2019)
+* Rodzeństwo:
+  * Halina Zawieja
+  * Mirosława Zawieja
+  * Jan Zawieja
+  * Krystyna Zawieja
+* Dzieci:
+  * Andrzej Trzciński (ur. 16.05.1946 w Szczecinie, zm. 21.10.2011)
+  * Jerzy Trzciński (ur. 14.02.1949 w Szczecinie)
+  * Hanna Furman, z domu Trzcińska (ur. 27.10.1954 w Szczecinie)
+  * Wojciech Trzciński (ur 26.06.1957 w Jasienicy)
 
 ------
 ## Jan Zawieja
@@ -107,9 +112,9 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
 * 07.08.1928 - 02.01.2009
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim
 * Rodzeństwo: 
-  * Henryka Zawieja
   * Halina Zawieja
   * Mirosława Zawieja
+  * Henryka Zawieja
   * Krystyna Zawieja
 * Dzieci: ???
 
