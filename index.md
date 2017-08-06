@@ -92,7 +92,7 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
   * Krystyna Zawieja
 
 ------
-## Mirosława Cegła, z domu Zawieja
+## Mirosława primo voto Cuske, secundo voto Cegła, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
 * 04.06.1923 - 14.09.2004
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z ojcem Józefem)
