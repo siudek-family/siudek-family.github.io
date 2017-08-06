@@ -66,6 +66,10 @@ Do uzupełnienia
   * Rudolf Junger
   * Joanna Junger
 
+Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
+![Gazeta-GlosTrzcianki-1992-08-23-Naglowek](Gazeta-GlosTrzcianki-1992-08-23-Naglowek.jpg)
+![Gazeta-GlosTrzcianki-1992-08-23-Wspomnienie](Gazeta-GlosTrzcianki-1992-08-23-Wspomnienie.jpg)
+
 ------
 ## Henryka Trzcińska, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
@@ -122,7 +126,7 @@ Do uzupełnienia
 # Miejsca
 
 ## Kołomyja
-Z kołomyji pochodzi Edward Junger. Po wojnie, posiadając dom w Trzciance przy ul. Konarskiego, Edward wrócił do Kołomyji i zabrał z tamtąd swoją mamę Annę. Grób jego ojca Józefa w Kołomyji został zniszczony.
+Z kołomyji pochodzi Edward Junger. Po wojnie, posiadając dom w Trzciance przy ul. Konarskiego, Edward wrócił do Kołomyji i zabrał z tamtąd swoją mamę Annę. Grób jego ojca Józefa w Kołomyji był już w tym czasie zniszczony (wg relacji Edwarda).
 
 ## Ostrów Wielkopolski
 W Ostrowie Wielkopolskim, pod adresem Rynek 30 pracowała (a być może i mieszkała) Babcia M. Gucz z rodziną. Budynek istnieje do dnia dzisiejszego, obecnie jest to adres Plac 23 stycznia, numer domu 13.
