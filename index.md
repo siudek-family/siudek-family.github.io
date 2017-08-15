@@ -94,7 +94,7 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
 ## Henryka Trzcińska, z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
 * ur. 25.01.1925 w Ostrowie Wielkopolskim - zm. 07.07.2005
-* Małżonek: Tadeusz Trzciński (ur. 05.07.2019)
+* Małżonek: Tadeusz Trzciński (ur. 05.07.1919)
 * Rodzeństwo:
   * Halina Zawieja
   * Mirosława Zawieja
