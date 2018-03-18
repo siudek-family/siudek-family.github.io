@@ -1,5 +1,5 @@
 ## Franciszek Siudek
-Do uzupełnienia
+* ? - 06.
 
 ## Marianna Siudek, z domu Żurek
 Do uzupełnienia
@@ -80,6 +80,8 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
   * Jan Zawieja
   * Krystyna Zawieja
 
+> Powiadała: "Nigdy nie zrobisz interesu w 100 procentach"
+
 ------
 ## Mirosława Cegła (primo voto Cuske, secundo voto Cegła), z domu Zawieja
 * Rodzice: Józef i Kazimiera Zawieja
@@ -152,3 +154,6 @@ Na zdjęciu: Gazeta lokalna, z reklamą usług M. Gucz
 
 # Postacie
 * Do uzupełnienia - ważne postacie związane z rodzinami, chociaż z nimi nie spokrewnione
+
+## Zdjęcia albumowe
+Poniżej znajdziecie zdjęcia wraz z opisami, przygotowane z myślą o wykorzystaniu ich albo w albumach (po uprzednim wydrukowani) albo do wydrukowania, oprawieniu w ramki i ozdobieniu nimi ścian.
