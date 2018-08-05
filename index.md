@@ -51,8 +51,8 @@ Do uzupełnienia
 * Małżonek: Józef Zawieja
 * Rodzeństwo: ???
 * Dzieci:
-  * Mirosława Zawieja
   * Halina Zawieja
+  * Mirosława Zawieja
   * Henryka Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
