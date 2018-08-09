@@ -32,7 +32,7 @@ Do uzupełnienia
 
 ------
 ## Józef Zawieja
-* 20.?2.1893 - 16.09.1945
+* 26.02.1893 - 16.09.1945
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z córką Mirosławą)
 * Małżonek: Kazimiera Gucz
 * Rodzeństwo: ???
