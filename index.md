@@ -132,6 +132,7 @@ Do uzupełnienia
 ======
 # Miejsca
 
+
 ## Kołomyja
 Z kołomyji pochodzi Edward Junger. Po wojnie, posiadając dom w Trzciance przy ul. Konarskiego, Edward wrócił do Kołomyji i zabrał z tamtąd swoją mamę Annę. Grób jego ojca Józefa w Kołomyji był już w tym czasie zniszczony (wg relacji Edwarda).
 
@@ -151,6 +152,12 @@ Na zdjęciu: Gazeta lokalna, z reklamą usług M. Gucz
 
 ## Trzcianka
   * Do uzupełnienia
+
+## Dziewiętnia
+Joanna Jungerówna (Hasia) mieszkała z daleka od rodzinnej Kołomyji w Dziewiętni powiat Wilejski, gmina Żodziszki, na terenie dzisiejszej Białorusi. Zmarła bezdzietnie.
+
+Na zdjęciu: Hasia Junger, Dziewiętnia
+![Dziewietnia-SzkolaPodstawowa](Dziewietnia-SzkolaPodstawowa.png)
 
 # Postacie
 * Do uzupełnienia - ważne postacie związane z rodzinami, chociaż z nimi nie spokrewnione
