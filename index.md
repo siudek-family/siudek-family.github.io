@@ -164,4 +164,4 @@ Na zdjęciu: Hasia Junger, Dziewiętnia
 * Do uzupełnienia - ważne postacie związane z rodzinami, chociaż z nimi nie spokrewnione
 
 ## Zdjęcia albumowe
-Poniżej znajdziecie zdjęcia wraz z opisami, przygotowane z myślą o wykorzystaniu ich albo w albumach (po uprzednim wydrukowani) albo do wydrukowania, oprawieniu w ramki i ozdobieniu nimi ścian.
+Poniżej znajdziecie zdjęcia wraz z opisami, przygotowane z myślą o wykorzystaniu ich albo w albumach (po uprzednim wydrukowaniu) albo do wydrukowania, oprawieniu w ramki i ozdobieniu nimi ścian.
