@@ -153,8 +153,8 @@ Na zdjęciu: Gazeta lokalna, z reklamą usług M. Gucz
 ## Trzcianka
   * Do uzupełnienia
 
-## Dziewiętnia
-Joanna Jungerówna (Hasia) mieszkała z daleka od rodzinnej Kołomyji w Dziewiętni powiat Wilejski, gmina Żodziszki, na terenie dzisiejszej Białorusi. Zmarła bezdzietnie.
+## Dziewiętnie
+Joanna Jungerówna (Hasia) mieszkała z daleka od rodzinnej Kołomyji w Dziewiętniach powiat Wilejski, gmina Żodziszki, na terenie dzisiejszej Białorusi. Zmarła bezdzietnie.
 
 Na zdjęciu: Hasia Junger, Dziewiętnia
 ![Dziewietnia-SzkolaPodstawowa](Dziewietnia-SzkolaPodstawowa.png)
