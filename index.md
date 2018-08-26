@@ -13,10 +13,10 @@ Do uzupełnienia
 ## Józef Junger
 * Małżonek: Anna Bowszek
 * Dzieci
-  * Rudolf Junger
   * Stefania Junger
-  * Edward Junger
+  * Rudolf Junger
   * Joanna Junger
+  * Edward Junger
 
 ------
 ## Anna Junger, z domu Bowszek
@@ -25,8 +25,8 @@ Do uzupełnienia
 * Małżonek: Józef Junger
 * Rodzeństwo: nieznane
 * Dzieci
-  * Rudolf Junger
   * Stefania Junger
+  * Rudolf Junger
   * Joanna Junger
   * Edward Junger
 
@@ -63,6 +63,7 @@ Do uzupełnienia
 * 11.02.1919 - 06.08.1992
 * Spoczywa w Trzciance
 * Rodzeństwo:
+  * Stefania Junger
   * Rudolf Junger
   * Joanna Junger
 
