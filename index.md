@@ -158,7 +158,7 @@ Na zdjęciu: Gazeta lokalna, z reklamą usług M. Gucz
 Joanna Jungerówna (Hasia) mieszkała z daleka od rodzinnej Kołomyji w Dziewiętniach powiat Wilejski, gmina Żodziszki, na terenie dzisiejszej Białorusi. Zmarła bezdzietnie.
 
 Na zdjęciu: Hasia Junger, Dziewiętnia
-![Dziewietnie-SzkolaPodstawowa](Dziewietnie-SzkolaPodstawowa.png)
+![Dziewietnia-SzkolaPodstawowa](Dziewietnia-SzkolaPodstawowa.png)
 
 # Postacie
 * Do uzupełnienia - ważne postacie związane z rodzinami, chociaż z nimi nie spokrewnione
