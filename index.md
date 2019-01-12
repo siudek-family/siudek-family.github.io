@@ -78,6 +78,7 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
 * Spoczywa w Trzciance
 * Rodzeństwo:
   * Mirosława Zawieja
+  * Henryka Zawieja
   * Jan Zawieja
   * Krystyna Zawieja
 
