@@ -127,7 +127,11 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
   * Mirosława Zawieja
   * Henryka Zawieja
   * Krystyna Zawieja
-* Dzieci: ???
+* Dzieci:
+ * Danuta Horn
+ * Hanna Tabaka
+ * Zbigniew Zawieja
+ * Leszek Zawieja
 
 ## Józef Siudek
 * Rodzice: Franciszek i Marianna Siudek
