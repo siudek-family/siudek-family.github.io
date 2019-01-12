@@ -95,6 +95,7 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
 * Rodzice: Józef i Kazimiera Zawieja
 * 04.06.1923 - 14.09.2004
 * Spoczywa na cmentarzu w Ostrowie Wielkopolskim (w kwaterze z ojcem Józefem)
+* Rodzeństwo:
   * Halina Zawieja
   * Henryka Zawieja
   * Jan Zawieja
