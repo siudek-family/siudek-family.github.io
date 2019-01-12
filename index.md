@@ -113,7 +113,7 @@ Poniżej artykuł w gazecie lokalnej opublikowany w związku z pogrzebem Edwarda
   * Krystyna Zawieja
 * Dzieci:
   * Andrzej Trzciński (ur. 16.05.1946 w Szczecinie, zm. 21.10.2011)
-  * Jerzy Trzciński (ur. 14.02.1949 w Szczecinie)
+  * Jerzy Trzciński (ur. 14.02.1949 w Szczecinie, pochowany ok. 2007r, pochowany w Świnoujściu)
   * Hanna Furman, z domu Trzcińska (ur. 27.10.1954 w Szczecinie)
   * Wojciech Trzciński (ur 26.06.1957 w Jasienicy)
 
