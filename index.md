@@ -7,8 +7,8 @@ Do uzupełnienia
 ------
 ## Agnieszka Zawiejowa
 *** Zgodnie z nekrologiem z Orędownika Ostrowskiego jest to matka Józefa Zawieji***
-![Gazeta-GlosTrzcianki-1992-08-23-Naglowek](OredownikOstrowski-1930-12-12_01.png)
-![Gazeta-GlosTrzcianki-1992-08-23-Wspomnienie](OredownikOstrowski-1930-12-12_01.png)
+![Orędownik Ostrowski 1930-12-12 nagłówek](OredownikOstrowski-1930-12-12_01.png)
+![Orędownik Ostrowski 1930-12-12 nekrolog](OredownikOstrowski-1930-12-12_02.png)
 
 ------
 ## Babcia M. Gucz
@@ -16,7 +16,7 @@ Do uzupełnienia
   * Kazimiera Gucz
 
 ------
-## Józef Junger
+## Franciszek Junger
 * Małżonek: Anna Bowszek
 * Dzieci
   * Stefania Junger
