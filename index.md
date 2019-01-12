@@ -5,6 +5,12 @@
 Do uzupełnienia
 
 ------
+## Agnieszka Zawiejowa
+*** Zgodnie z nekrologiem z Orędownika Ostrowskiego jest to matka Józefa Zawieji***
+![Gazeta-GlosTrzcianki-1992-08-23-Naglowek](OredownikOstrowski-1930-12-12_01.png)
+![Gazeta-GlosTrzcianki-1992-08-23-Wspomnienie](OredownikOstrowski-1930-12-12_01.png)
+
+------
 ## Babcia M. Gucz
 * Dzieci:
   * Kazimiera Gucz
@@ -22,7 +28,7 @@ Do uzupełnienia
 ## Anna Junger, z domu Bowszek
 * 17.10.1882 - 03.03.1965
 * Spoczywa na starym cmentarzu w Trzciance
-* Małżonek: Józef Junger
+* Małżonek: Franciszek Junger
 * Rodzeństwo: nieznane
 * Dzieci
   * Stefania Junger
