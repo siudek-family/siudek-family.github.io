@@ -6,7 +6,7 @@ Do uzupełnienia
 
 ------
 ## Agnieszka Zawiejowa
-*** Zgodnie z nekrologiem z Orędownika Ostrowskiego jest to matka Józefa Zawieji***
+***Zgodnie z nekrologiem z Orędownika Ostrowskiego jest to matka Józefa Zawieji***
 ![Orędownik Ostrowski 1930-12-12 nagłówek](OredownikOstrowski-1930-12-12_01.png)
 ![Orędownik Ostrowski 1930-12-12 nekrolog](OredownikOstrowski-1930-12-12_02.png)
 
